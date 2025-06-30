@@ -7,8 +7,12 @@
 > !WARNING
 > Intreact with extra caution, (ADHD, anger and some more i'd not like to mention)
 
-c+h is allowed! im actually friendly so i wont mind any approach :3 ₊˚ෆ
+###       » [Through Patches of Violet] «
+###      0:00 ─〇───── 3:52
+###     ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
 
-╰┈➤ I prefer fandoms such as TF2, limbus company, CRK, forsaken, JSAB, die of death, etc...
+    c+h is allowed! im actually friendly so i wont mind any approach :3 ₊˚ෆ
+
+    ╰┈➤ I prefer fandoms such as TF2, limbus company, CRK, forsaken, JSAB, die of death, etc...
 
 
