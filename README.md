@@ -16,4 +16,7 @@ c+h is allowed! im actually friendly so i wont mind any approach :3 ₊˚ෆ
 
 ┈➤ I prefer fandoms such as TF2, limbus company, CRK, forsaken, JSAB, die of death, etc...
 
+> discord: mwananas
+
+![.](https://files.catbox.moe/dcnuez.gif)
 
