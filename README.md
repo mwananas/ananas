@@ -1,6 +1,6 @@
 #                 ANANAS!!!
 
-## . . . . . ╰──╮"I'll break your bones with all the love i carry"
+## . . . . . ╰──╮"I must be the reason why, you have given up your smile..."
 
 ![.](https://files.catbox.moe/8b16mf.jpg)
 
