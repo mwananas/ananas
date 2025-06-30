@@ -7,9 +7,11 @@
 > !WARNING
 > Intreact with extra caution, (ADHD, anger and some more i'd not like to mention)
 
+
        » [Through Patches of Violet] «
-     0:00 ─〇───── 3:52
+     1:07 ─〇───── 3:52
      ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
+
 
     c+h is allowed! im actually friendly so i wont mind any approach :3 ₊˚ෆ
 
