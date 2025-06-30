@@ -5,6 +5,10 @@
 ![.](https://files.catbox.moe/8b16mf.jpg)
 
 > !WARNING
-> Intreact with extra caution, i might bite
+> Intreact with extra caution, (ADHD, anger and some more i'd not like to mention)
 
-I prefer fandoms such as TF2, limbus company, CRK, forsaken, JSAB, die of death, etc...
+c+h is allowed! im actually friendly so i wont mind any approach :3 ₊˚ෆ
+
+╰┈➤ I prefer fandoms such as TF2, limbus company, CRK, forsaken, JSAB, die of death, etc...
+
+
