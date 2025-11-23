@@ -1,18 +1,21 @@
 #                 ANANAS!!!
 
-## . . . . . ╰──╮"I must be the reason why, you have given up your smile..."
+## ⸝⸝ : ̗̀➛ ╰──╮"The past that only got to live in the incomplete holy land..." ༝༝
 
 ![.](https://files.catbox.moe/8b16mf.jpg)
 
-> !WARNING
-> Intreact with extra caution, (ADHD, anger and some more i'd not like to mention)
+> !HELLO?
 
-[Through Patches of Violet] «
+> int with caution. ⸝⸝ minor.  ⸝⸝ taken!! ⸝⸝  c+h ok
+
+[Between Two Worlds] «
+
 1:07 ─〇───── 3:52
 ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
 
 
-c+h is allowed! im actually friendly so i wont mind any approach :3 ₊˚ෆ
+pls don't ask me to be friends, im sure it will build overtime. ⸝⸝ uncomf with sexual stuff sry
+asylum, esther, ray, orei, katsu :3 ₊˚ෆ
 
 ┈➤ I prefer fandoms such as TF2, limbus company, CRK, forsaken, JSAB, die of death, etc...
 
